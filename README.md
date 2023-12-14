@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sh3ps
+- 👀 I’m interested in Online Safety and Cyber Security
+- 🌱 I’m currently learning Social Engineering
+- 💞️ I’m looking to collaborate on making the internet a safer place for everyone
+- 📫 How to reach me hello@inspiringjoe.com
